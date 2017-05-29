@@ -1,4 +1,4 @@
-Notes by [https://www.facebook.com/daemonon](Dimitri Stocchi).
+Notes by [Dimitri Stocchi](https://www.facebook.com/daemonon).
 
 <img src="https://github.com/dkandalov/drum-lessons-notes/blob/master/1.jpg?raw=true" alt="screenshot" title="screenshot" align="center"/>
 

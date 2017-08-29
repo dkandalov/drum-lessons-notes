@@ -37,3 +37,21 @@ Notes by [Dimitri Stocchi](https://www.facebook.com/daemonon).
 <img src="https://github.com/dkandalov/drum-lessons-notes/blob/master/11.jpg?raw=true" alt="note" title="note" align="center"/>
 
 <img src="https://github.com/dkandalov/drum-lessons-notes/blob/master/11%2B.jpg?raw=true" alt="note" title="note" align="center"/>
+
+<img src="https://github.com/dkandalov/drum-lessons-notes/blob/master/12.jpg?raw=true" alt="note" title="note" align="center"/>
+
+<img src="https://github.com/dkandalov/drum-lessons-notes/blob/master/12%2B.jpg?raw=true" alt="note" title="note" align="center"/>
+
+<img src="https://github.com/dkandalov/drum-lessons-notes/blob/master/13.jpg?raw=true" alt="note" title="note" align="center"/>
+
+<img src="https://github.com/dkandalov/drum-lessons-notes/blob/master/14.jpg?raw=true" alt="note" title="note" align="center"/>
+
+<img src="https://github.com/dkandalov/drum-lessons-notes/blob/master/15.jpg?raw=true" alt="note" title="note" align="center"/>
+
+<img src="https://github.com/dkandalov/drum-lessons-notes/blob/master/15%2B.jpg?raw=true" alt="note" title="note" align="center"/>
+
+<img src="https://github.com/dkandalov/drum-lessons-notes/blob/master/16.jpg?raw=true" alt="note" title="note" align="center"/>
+
+<img src="https://github.com/dkandalov/drum-lessons-notes/blob/master/17.jpg?raw=true" alt="note" title="note" align="center"/>
+
+<img src="https://github.com/dkandalov/drum-lessons-notes/blob/master/18.jpg?raw=true" alt="note" title="note" align="center"/>
